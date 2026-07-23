@@ -1,37 +1,5 @@
 # LB-M295
 
-  ewrq 
-Wikipedia
-Wikipedia durchsuchen
-Suchen
-Jetzt spenden
-Benutzerkonto erstellen
-Anmelden
-Inhaltsverzeichnis Verbergen
-(Anfang)
-Vorgeschichte
-Verbreitung über soziale Medien
-Angriff auf die Pizzeria und Folgen
-Weitere Entwicklung seit 2017
-Weblinks
-Einzelnachweise
-Pizzagate
-
-Artikel
-Diskussion
-Lesen
-Quelltext anzeigen
-Versionsgeschichte
-
-Erscheinungsbild Verbergen
-Text
-
-Klein
-
-Standard
-
-Groß
-Breite
 
 Standard
 
